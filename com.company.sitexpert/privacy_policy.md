@@ -1,4 +1,5 @@
 Privacy Policy
+
 Last updated: 25th April,2023
 Introduction
 Our privacy policy will help you understand what information we collect at SiteXpert, how SiteXpert uses it, and what choices you have. SiteXpert built the SiteXpert app as a free app. This SERVICE is provided by SiteXpert at no cost and is intended for use as is.
